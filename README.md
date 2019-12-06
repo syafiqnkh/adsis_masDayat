@@ -1,4 +1,5 @@
-Selamat malam, kos barokah
-Jumat,  6 Desember 2019
-Pukul 20.11, hujan
-Nggarap adsis neng kos-kosan.
+malem sabtu minggu tenang di Kost Putra Barokah.
+penuh semangat mengerjakan adsis, ditemani
+udan gerimis, kopi panas, sama lagu indie.
+mantaplanie.
+
